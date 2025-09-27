@@ -1,4 +1,4 @@
-## DAYDREAMER_LATRANS
+## SOMNIUM_LATRANS
 💫 Daydream / Day / Headroom\
 🌀 He/They/It, AroAce\
 🏚️ Usually quietly watching people or talking with close friends. Very finicky on who I regularly talk with, brain issues. Distrustful shelter dog syndrome, you get it.\
