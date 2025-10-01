@@ -3,6 +3,7 @@
 🌀 He/They/It, AroAce\
 🏚️ Usually quietly watching people, talking with close friends, or doing something else. Very finicky on who I regularly talk with, brain issues. Distrustful shelter dog syndrome.\
 🐾 Strawpage is our favored site. Friendly with freaks and open-minded folk :)\
+⚠️ Don't particularly care for discourse, keep it away from me, but I'll side-eye you if you act puritanical.\
 🎮 Super into S.T.A.L.K.E.R. at the moment\
 \
 ![CJ9yBXyH](https://github.com/user-attachments/assets/406557ee-9223-4f87-81f2-91a2778c5a5e)
