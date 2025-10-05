@@ -3,11 +3,12 @@
 🌀 He/They/It, AroAce\
 🏚️ Usually quietly watching people, talking with close friends, or doing something else. Very finicky on who I regularly talk with, brain issues. Distrustful shelter dog syndrome.\
 🐾 Strawpage is our favored site. Friendly with freaks and open-minded folk :)\
-⚠️ Don't particularly care for discourse, keep it away from me, but I'll side-eye you if you act puritanical.\
-🎮 Super into S.T.A.L.K.E.R. at the moment\
+⚠️ Don't particularly care for discourse, keep it away from me, but I'll side-eye you if you act puritanical or like a cop.\
+🎮 Super into S.T.A.L.K.E.R. and Postal at the moment\
 \
 ![CJ9yBXyH](https://github.com/user-attachments/assets/406557ee-9223-4f87-81f2-91a2778c5a5e)
 ![IMG-1408-jpeg](https://github.com/user-attachments/assets/879ffc96-a0b0-4ff8-9d2a-14647166f2b5)\
+![gordon hates america](https://github.com/user-attachments/assets/a0980880-d63d-4a2e-895e-ca11535c2349)\
 \
 ![tumblr_4d0f99b81ac3f41562e104e1e6b67773_ba74ad5b_100](https://github.com/user-attachments/assets/4f1139b9-022f-44b7-bca6-32f7848d65c5)
 ![tumblr_032a67d3ea0aafa9d665355fd6346b7b_224e137c_100](https://github.com/user-attachments/assets/996a4c63-b5fc-4a6e-bc5b-e2b1dab43c50)
