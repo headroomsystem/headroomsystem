@@ -6,6 +6,7 @@
 ⚠️ Don't particularly care for discourse, keep it away from me, but I'll side-eye you if you act puritanical or like a cop.\
 🎮 Super into S.T.A.L.K.E.R., Postal, and Team Fortress 2 :)\
 \
+<img width="250" height="248" alt="acab" src="https://github.com/user-attachments/assets/71ad993f-19f8-41a4-b8db-424562ae96f6" />\
 ![CJ9yBXyH](https://github.com/user-attachments/assets/406557ee-9223-4f87-81f2-91a2778c5a5e)
 ![IMG-1408-jpeg](https://github.com/user-attachments/assets/879ffc96-a0b0-4ff8-9d2a-14647166f2b5)\
 ![gordon hates america](https://github.com/user-attachments/assets/a0980880-d63d-4a2e-895e-ca11535c2349)\
