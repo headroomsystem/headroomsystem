@@ -1,6 +1,6 @@
 ## CANIS_LATRANS_SOMNIUM
 💫 Daydream / Day / Headroom\
-🌀 He/They/It, AroAce, Adult (20+)\
+🌀 He/They/It, AroAce, Adult (20)\
 🏚️ Usually quietly watching people, talking with close friends, or doing something else. Very finicky on who I regularly talk with, brain issues. Distrustful shelter dog syndrome.\
 🐾 Strawpage is our favored site. Friendly with freaks and open-minded folk :)\
 ⚠️ Don't particularly care for discourse, keep it away from me, but I'll side-eye you if you act puritanical or like a cop.\
