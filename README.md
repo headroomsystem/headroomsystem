@@ -4,7 +4,7 @@
 🏚️ Usually quietly watching people, talking with close friends, or doing something else. Very finicky on who I regularly talk with, brain issues. Distrustful shelter dog syndrome, schizo-spec.\
 🐾 Strawpage is our favored site. Friendly with freaks and open-minded folk :)\
 ⚠️ Don't particularly care for discourse, keep it away from me, but I'll side-eye you if you act puritanical or like a cop.\
-🎮 Currently super into: Disco Elysium and Postal\
+🎮 Currently super into: Half-Life, Team Fortress 2, Bioshock, Disco Elysium and Postal\
 \
 <img width="250" height="248" alt="acab" src="https://github.com/user-attachments/assets/71ad993f-19f8-41a4-b8db-424562ae96f6" />\
 ![CJ9yBXyH](https://github.com/user-attachments/assets/406557ee-9223-4f87-81f2-91a2778c5a5e)
